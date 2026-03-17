@@ -1,6 +1,8 @@
+⭐ Current spinterest(s): Star Trek Lower Decks and Miitopia !
 
+![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/b4eeee06-5b82-43da-8392-206cc89a5b36) 
 
-![tumblr_46f20fe183b6857b0af2cdbf2802cdca_b9cb6bfd_75 gif](https://github.com/user-attachments/assets/e95a83dd-4434-40a1-afba-4404fc8dff4a) 𝗣𝗿𝗼𝗯𝗹𝗲𝗺𝗮𝘁𝗶𝗰 𝗽𝗲𝗼𝗽𝗹𝗲 𝗱𝗻𝗳 𝗯𝗲𝘆𝗼𝗻𝗱 𝘁𝗵𝗶𝘀 𝗽𝗼𝗶𝗻𝘁
+ 𝗣𝗿𝗼𝗯𝗹𝗲𝗺𝗮𝘁𝗶𝗰 𝗽𝗲𝗼𝗽𝗹𝗲 𝗱𝗻𝗳 𝗯𝗲𝘆𝗼𝗻𝗱 𝘁𝗵𝗶𝘀 𝗽𝗼𝗶𝗻𝘁
 <img width="2048" height="123" alt="tumblr_cfff47d58d7c8b4e28e393b7b545b9fe_c7155590_2048" src="https://github.com/user-attachments/assets/f3238bd7-f024-401e-a7c5-14daf256711b" />
 
 
@@ -60,6 +62,8 @@ I <3 Wido
 ![ezgif-2e812e9d2b2034e9](https://github.com/user-attachments/assets/b3875d01-384e-4bd4-8370-beb9d342cfdc)
 ![tumblr_30d77b9ca0e21842b3070d3b02e44896_7a4ff1fd_250 gif](https://github.com/user-attachments/assets/b14e3002-1dd2-4b9f-a69c-f669477e3898)
 ![0050-capricorn](https://github.com/user-attachments/assets/818631e4-a9d3-4e2f-be5c-abf1fa4be413)
+![tumblr_591048b9d6f72f4872d5d8a07623fdff_cb9958d3_250](https://github.com/user-attachments/assets/37949149-8292-41fd-a942-d8425cb3811e)
+
 
 ![ezgif-662d89e5bb1d0669](https://github.com/user-attachments/assets/eb649adb-240b-4dc0-abf2-dc5d8e03d8fb)
 <img width="99" height="56" alt="tumblr_a9008554c7b34c07b2188f7b2163c851_b779f684_100" src="https://github.com/user-attachments/assets/46f2663c-2cad-4d7e-9b93-c16ff6d8f673" />
