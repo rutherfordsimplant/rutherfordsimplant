@@ -1,8 +1,16 @@
 ⭐ - **Current spinterest(s): Star Trek Lower Decks and Miitopia !**
 
-![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/b4eeee06-5b82-43da-8392-206cc89a5b36) 
 
- 𝗣𝗿𝗼𝗯𝗹𝗲𝗺𝗮𝘁𝗶𝗰 𝗽𝗲𝗼𝗽𝗹𝗲 𝗱𝗻𝗳 𝗯𝗲𝘆𝗼𝗻𝗱 𝘁𝗵𝗶𝘀 𝗽𝗼𝗶𝗻𝘁
+<img width="69" height="78" alt="ezgif-7eaed4268ffe2990" src="https://github.com/user-attachments/assets/1ba10d5e-dfd0-4b70-8e12-7f85c43f5ae8" />
+
+![tumblr_8c7217648c5edb1c978f4af6cdddc7e5_8f520f94_100](https://github.com/user-attachments/assets/ee97ebda-eebb-4834-a0af-5b862b16787e)
+
+<img width="69" height="78" alt="ezgif-79b54041ba3211dc" src="https://github.com/user-attachments/assets/4e77ad12-9e70-481e-9004-b6b4dc0bb946" />
+
+
+
+
+ 
 <img width="2048" height="123" alt="tumblr_cfff47d58d7c8b4e28e393b7b545b9fe_c7155590_2048" src="https://github.com/user-attachments/assets/f3238bd7-f024-401e-a7c5-14daf256711b" />
 
 
